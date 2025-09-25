@@ -1,1 +1,1 @@
-i change games weekly
+i change games every wensday
